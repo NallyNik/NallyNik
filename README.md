@@ -14,7 +14,7 @@ Para o alto e avante!
 ___________________________________
 - 👋 
 Hi guys, I'm Anahita and NallyNik is my gamer alter ego!
-I graduated in Advertising and Nutrition, but I'm changing areas after learning about the program!
+I graduated in Advertising and Nutrition, but I'm changing areas after learning about the programming!
 I've always been interested in technology and artificial intelligence, but I never thought I could be a part of that world, until now!
 
 - 🌱
